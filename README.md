@@ -7,3 +7,6 @@ gi
 
 
 Estoy intentato subir algo ahora
+
+Va estar muy dificil no;(
+    creo que me tengo que poner al dia con las clases del semestre
